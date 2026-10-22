@@ -20,5 +20,5 @@
 ## En una línea
 - EE. UU. relaja y la UE endurece: las sanciones a Rusia divergen.
 - Brent cerca de 105–108 $ con Ormuz sin resolver.
-- El 1 de noviembre ya está en el horizonte: vence la suspensión china de controles a minerales críticos (noviembre).
+- Se acerca noviembre: vence la suspensión china de controles a minerales críticos (noviembre).
 - Argentina: mercados tensos el 22 oct por débil actividad de agosto (El Economista).
